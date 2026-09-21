@@ -1,9 +1,8 @@
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=mualani&label=visitors&color=lightgrey)<br>
-![](https://files.catbox.moe/sjgxlp.webp)
-<br>
-${\textsf{\color{#92c6ac}vani}}$ or haunted𓈒 she/her ୨ৎ 15yo<br>
-intp 6w5 so/sp san-mel & audhd<br>
-**c*h** always ${\textsf{\color{#92c6ac}enc}}$𓈒 dni nazi/fascist[+](https://emperorwemmbu.straw.page/)<br>
-[♡](https://github.com/title-town) [♡](https://github.com/pt-friendships) [♡](https://github.com/style-town)⠀⠀[help our ppl](https://helpourpeople.carrd.co/) [boycott](https://boycott-israel.org/)
+${\textsf{\color{#86A586}vani}}$ or haunted. she/her only, fem<br>
+c*h is always ${\textsf{\color{#C55565}encouraged}}$! please bmf<br>
+dni nazi, bigot, etc. and judelow fans<br>
+i do not like qwelver or blushcrunch<br>
+[help our people](https://helpourpeople.carrd.co/)⠀[boycott israel](https://boycott-israel.org)
